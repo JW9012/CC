@@ -1,5 +1,2 @@
-# This is created for Cloris Chen
+- by Josh 
 
-​													- by Josh 
-
-May Cloris be happy forever.
